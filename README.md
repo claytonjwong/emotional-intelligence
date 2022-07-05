@@ -54,3 +54,17 @@ Walt Disney designed the theme park from the perspective of a child.  For exampl
 ### The Accuracy of First Impressions
 
 This brief reflection article discusses research on how it’s possible when we are attuned, to be remarkably accurate in reading other people. There is a link within this article that we encourage you to read. The issues discussed here raise implications for how you should manage your own non-verbal signals and how you can gather rich information about others through paying attention: https://bobsutton.typepad.com/my_weblog/2009/07/the-accuracy-of-first-impressions-an-amazing-old-study-about-thin-slices-of-behavior.html
+
+### Self-Assessment: How Emotionally Intelligent Are You?
+
+![](self_assessment.png)
+
+* https://www.mindtools.com/pages/article/ei-quiz.htm
+
+#### What will being more self-aware do for us?
+
+* increase productivity, creativity, self-esteem, self-confidence, and communication
+* boose acceptance by others
+* encourage positive self-development
+* improvde self-control, decision making, job performance, job related well-being
+* allows self-pride which in term enhances self-esteem
