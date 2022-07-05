@@ -64,7 +64,7 @@ This brief reflection article discusses research on how it’s possible when we 
 #### What will being more self-aware do for us?
 
 * increase productivity, creativity, self-esteem, self-confidence, and communication
-* boose acceptance by others
+* boost acceptance by others
 * encourage positive self-development
 * improvde self-control, decision making, job performance, job related well-being
 * allows self-pride which in term enhances self-esteem
