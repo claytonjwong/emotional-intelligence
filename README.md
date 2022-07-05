@@ -18,3 +18,12 @@
 6. What is lost when you read the emotions of a person but not the collective?  What does it take to work in a team or to be a leader and really understand the importance of seeing the forest, not just a tree?  What is gained when you shift your focus from a person to people?
 7. What do transformative mentors and lasting legacies have in common?
 
+## Lesson 1: Do emotions have a place at work?
+
+There's a competitive advantage of leveraging our deeply human abilities at social interaction.
+
+> In business, we try to **pretend** that emotions don't exist, to try to be completely unemotional and rational, which is a **fiction**.  Without Emotions you actually can't make a decision, because you make your decisions based on what you care about."
+>
+-[Chris Voss, Former lead FBI negotiator](https://en.wikipedia.org/wiki/Christopher_Voss)
+
+When you have more mixed feelings as opposed to simply being optimistic or pessimistic for example, you're able to make better use of complex and conflicting information. That's exactly what's needed when you're making decisions under uncertainty and in complex situations.
