@@ -68,3 +68,15 @@ This brief reflection article discusses research on how it’s possible when we 
 * encourage positive self-development
 * improvde self-control, decision making, job performance, job related well-being
 * allows self-pride which in term enhances self-esteem
+
+### The Case for Mindful Engagement
+
+People moving into new leadership roles often find themselves overwhelmed with demands on their time, higher expectations, and intense ambiguity and change.  So it might seem hard to justify carving out time to reflect -- to step back and think about what they’ve learned, and what they might do differently next time.
+
+> In a challenging and complex situation, people tend to develop a performance-based mindset that can undermine their personal and professional growth.
+
+Research shows the key to professional growth is treating yourself like an R&D engine. How do you become a R&D engine? You embrace a learning mindset where mistakes are opportunities to learn. You have a laser-like focus on learning goals. You create experiments for yourself, seek feedback, adapt, and then repeat.  And you reflect on success and failure.
+
+* https://michiganross.umich.edu/rtia-articles/case-mindful-engagement
+
+One of the first steps is learning how and when to take a step back from the daily grind and just think. The trick is to make it a habit.
