@@ -22,7 +22,7 @@
 
 There's a competitive advantage of leveraging our deeply human abilities at social interaction.
 
-> In business, we try to **pretend** that emotions don't exist, to try to be completely unemotional and rational, which is a **fiction**.  Without Emotions you actually can't make a decision, because you make your decisions based on what you care about."
+> In business, we try to **pretend** that emotions don't exist, to try to be completely unemotional and rational, which is a **fiction**.  Without emotions you actually can't make a decision, because you make your decisions based on what you care about."
 >
 -[Chris Voss, Former lead FBI negotiator](https://en.wikipedia.org/wiki/Christopher_Voss)
 
