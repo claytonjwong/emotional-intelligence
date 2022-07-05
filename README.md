@@ -50,3 +50,9 @@ Social-emotional intelligence is *not* fixed, it can be improved (but it can als
 -[Antoine de Saint-Exupéry, 1943](https://en.wikipedia.org/wiki/Antoine_de_Saint-Exup%C3%A9ry)
 
 Walt Disney designed the theme park from the perspective of a child.  For example, when we first enter the theme park there's buildings to the left and right, and the 2<sup>nd</sup> and 3<sup>rd</sup> stories of the buildings don't appear realistic from an adult's perspective, but they do look real from a child's perspective.  This speaks to the challenge of trying to understand other's perspectives when we have a hard time seeing our own life's previous perspectives.
+
+### The Accuracy of First Impressions
+
+This brief reflection article discusses research on how it’s possible when we are attuned, to be remarkably accurate in reading other people. There is a link within this article that we encourage you to read. The issues discussed here raise implications for how you should manage your own non-verbal signals and how you can gather rich information about others through paying attention: https://bobsutton.typepad.com/my_weblog/2009/07/the-accuracy-of-first-impressions-an-amazing-old-study-about-thin-slices-of-behavior.html
+
+
