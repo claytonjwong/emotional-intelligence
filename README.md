@@ -27,3 +27,15 @@ There's a competitive advantage of leveraging our deeply human abilities at soci
 -[Chris Voss, Former lead FBI negotiator](https://en.wikipedia.org/wiki/Christopher_Voss)
 
 When you have more mixed feelings as opposed to simply being optimistic or pessimistic for example, you're able to make better use of complex and conflicting information. That's exactly what's needed when you're making decisions under uncertainty and in complex situations.
+
+### A Practical Model of Social-Emotional Intelligence
+
+![](model_of_social_emotional_intelligence.png)
+
+The yellow part of the model is focused on "you."  How do we "grow" what we know about ourselves?
+
+* Known parts of ourselves can be improved upon with reflection and self-analysis
+* Unknown parts of ourselves can be improved upon with feedback from others
+
+When you are aware of your own behaviors and you decide to do a behavior more or less, if you can, a next step to go even deeper might be to ask someone, someone you trust to be your partner in change. Ask them to watch you and give you feedback as to how you're doing with your goal.
+
