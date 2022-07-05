@@ -66,7 +66,7 @@ This brief reflection article discusses research on how it’s possible when we 
 * increase productivity, creativity, self-esteem, self-confidence, and communication
 * boost acceptance by others
 * encourage positive self-development
-* improvde self-control, decision making, job performance, job related well-being
+* improve self-control, decision making, job performance, job related well-being
 * allows self-pride which in term enhances self-esteem
 
 ### The Case for Mindful Engagement
