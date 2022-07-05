@@ -39,3 +39,14 @@ The yellow part of the model is focused on "you."  How do we "grow" what we know
 
 When you are aware of your own behaviors and you decide to do a behavior more or less, if you can, a next step to go even deeper might be to ask someone, someone you trust to be your partner in change. Ask them to watch you and give you feedback as to how you're doing with your goal.
 
+### The Paradox of Acting "Professional"
+
+![](conflicts.png)
+
+Social-emotional intelligence is *not* fixed, it can be improved (but it can also go unused).  Whether or not social-emotional intelligence will be leveraged depends on your leadership and the organization's culture.  Relationship conflict is particularly problematic, this is an obvious blindspot in the US.
+
+> All grown-ups were once children, but only few of them remember it.
+>
+-[Antoine de Saint-Exupéry, 1943](https://en.wikipedia.org/wiki/Antoine_de_Saint-Exup%C3%A9ry)
+
+Walt Disney designed the theme park from the perspective of a child.  For example, when we first enter the theme park there's buildings to the left and right, and the 2<sup>nd</sup> and 3<sup>rd</sup> stories of the buildings don't appear realistic from an adult's perspective, but they do look real from a child's perspective.  This speaks to the challenge of trying to understand other's perspectives when we have a hard time seeing our own life's previous perspectives.
