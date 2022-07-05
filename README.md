@@ -1,6 +1,6 @@
 # Emotional Intelligence: Cultivating Immensely Human Interactions
 
-"Experts" (think they) know; wise experts want to learn.  Wisdom is about humble curiosity and learning.
+"Experts" (think they) know; wise experts want to learn.  Wisdom is about humble curiosity and learning.  If we want to change, we are able to change.
 
 ---
 
@@ -54,5 +54,3 @@ Walt Disney designed the theme park from the perspective of a child.  For exampl
 ### The Accuracy of First Impressions
 
 This brief reflection article discusses research on how it’s possible when we are attuned, to be remarkably accurate in reading other people. There is a link within this article that we encourage you to read. The issues discussed here raise implications for how you should manage your own non-verbal signals and how you can gather rich information about others through paying attention: https://bobsutton.typepad.com/my_weblog/2009/07/the-accuracy-of-first-impressions-an-amazing-old-study-about-thin-slices-of-behavior.html
-
-
