@@ -1,6 +1,6 @@
 # Emotional Intelligence: Cultivating Immensely Human Interactions
 
-"Experts" (think they) know; wise experts want to learn.  Wisdom is about humble curiousity and learning.
+"Experts" (think they) know; wise experts want to learn.  Wisdom is about humble curiosity and learning.
 
 ---
 
