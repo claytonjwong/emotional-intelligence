@@ -80,3 +80,12 @@ Research shows the key to professional growth is treating yourself like an R&D e
 * https://michiganross.umich.edu/rtia-articles/case-mindful-engagement
 
 One of the first steps is learning how and when to take a step back from the daily grind and just think. The trick is to make it a habit.
+
+
+## Lesson 2: How can knowing more about ourselves help us and help our connections with others?
+
+Rather than try to become aware of how we're feeling and land on one single emotion, think about the many different feelings we might have. For example, we might be torn, we might be hopeful, but also a bit fearful about a situation. Such tension, such opposites of emotions, which we call emotional ambivalence, we know is actually good for decision-making.
+
+It's very important to not only be aware of how you're feeling in the moment but also try to put in effort to regulate and manage that emotion. Otherwise, you may end up having to spend much more time down the road trying to repair those relationships.
+
+Lack of highly developed social emotional intelligence is really difficult to recover from. But all of us can be a little bit better and if we get a little bit better, it will be better for the world.
