@@ -104,3 +104,28 @@ People who are feeling emotional complexity make more accurate forecasts, and ar
 Emotions are good when we're pitching an idea, but we will be seen as more thoughtful and more worthy of an investment if we're more authentic, that although there should be a lot of promise to our idea or we wouldn't be presenting it, there are also some risks and having that authenticity come into the place where we're pitching the idea can actually be quite helpful, ie. being *both* positive and negative, and seeing both sides of the coin from different perspectives to set proper expectations.
 
 There's a wonderful convergence of perspectives that to be more authentic in our emotional complexity, not just helps us make better decisions, but it also comes across as more thoughtful. Fortunately, those things match, they could have a mismatch, but there is a convergence on that. Here's the paradox. When we ask people, would you do this? They said, "Heck no," I will be seen as less competent. What you see here compared to the blue bars is a concern, a worry, a motivation to be more reluctant to engage in this emotional complexity pitching because I may be seen and others would be seen as less competent. What we're seeing here is that on average, people tend to shoot themselves in the foot in the sense that, they know their idea will be improved more quickly if they're more authentic about the imperfections of their ideas when they share them. Not to a client or to a boss but very early in the process to just others, however, we're more reluctant to engage in this behavior because we're worried about seeing competent. There's some talk on the street about how it's important to front or flex, and this is basically the concern that we're seeing here. Now, what are the summary and implications for all of this? Well, I hope the paradox opens our eyes to the fact that we need to create a culture that is not just psychologically safe, where people can share imperfect ideas. Removing psychological safety is like removing a headwind as we're sailing going forward. But we'd still be dead in the water, if we've just removed the headwind, we need to actually put wind in our sails, and that comes from modeling the legitimacy of having more emotionally complex feelings, being hopeful about an idea, but also concerned about its potential risks. So that not only are we seen as more thoughtful, not less competent, but most importantly, the ideas can get the attention they deserve. Modeling complexity is key. You as a leader have that opportunity.
+
+
+## Lession 4: How Can We Manage Social-Emotions to Increase Resilency?
+
+### How Successful People Stay Calm
+
+* Appreciate What They Have
+* Avoid Asking “What If?”
+* Stay Positive
+* Disconnect
+* Limit Their Caffeine Intake
+* Sleep
+* Eat Well, Take Care of Health
+* Squash Negative Self-Talk
+* Reframe Their Perspective
+* Breathe
+* Use Their Support System
+* Break: Mindfulness, Meditation, Relaxation
+
+### How Stress Can Shrink Your Brain and Impact Your Health
+
+* More stress equals less gray matter
+  * Two areas affected are the hippocampus, which plays a central role in learning and memory, and the prefrontal cortex, which regulates thoughts, emotions, and actions by “talking” to other brain regions.
+  * Folks who had high levels of cortisol in their blood did poorer on memory and cognitive tests. Over time, they also appeared to lose brain volume.
+* Elevated levels of cortisol can push you further down the road toward obesity, heart disease, depression, high blood pressure, and unhealthy lifestyle behaviors.
