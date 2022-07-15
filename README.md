@@ -129,3 +129,23 @@ There's a wonderful convergence of perspectives that to be more authentic in our
   * Two areas affected are the hippocampus, which plays a central role in learning and memory, and the prefrontal cortex, which regulates thoughts, emotions, and actions by “talking” to other brain regions.
   * Folks who had high levels of cortisol in their blood did poorer on memory and cognitive tests. Over time, they also appeared to lose brain volume.
 * Elevated levels of cortisol can push you further down the road toward obesity, heart disease, depression, high blood pressure, and unhealthy lifestyle behaviors.
+
+### Resiliency through Social Emotional Intelligence
+
+ It is not enough to be aware of what our emotions are unless we can control them and utilize them appropriately at the right time and in the right place.
+
+ * The ability to remain calm under pressure is a massive predictor of performance and resilience
+ * Resilience is a process of adapting to trauma and stress
+   * Results in profound traumatic growth, a positive growth that comes out of a disaster
+
+#### There is no one way to manage our emotions for positive outcomes. There are many ways.
+
+* Building relationships before you we need them
+  * Learning to ask for help, asking for help of others really is not that hard, but it seems to be for many people.  It turns out that people are rarely turned down when they ask for help.
+* Gratitude
+  * Journal: write down 3 things we're thankful for every single day
+* Implementing a stress relieving practice could be beneficial in many ways:
+  * exercising
+  * recreation (having fun)
+  * meditation
+
