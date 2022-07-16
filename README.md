@@ -149,3 +149,43 @@ There's a wonderful convergence of perspectives that to be more authentic in our
   * recreation (having fun)
   * meditation
 
+### 11 C's of Leadership
+
+Qualities of a world-class leader:
+
+* Credible
+* Caring
+* Collaborative
+* Connected
+* Calm
+* Creative
+* Confident
+* Curious
+* Communicative
+* Challenging
+* Conditioned
+
+#### What Happens as We Age?
+
+##### We Lost Our Creativity
+
+Fear of failure and setbacks are inextricably linked with the innovation process.  We must experiment to learn, and to learn, we must be open to failure (not crushed by it).
+
+🙂 95% of five year olds are creative
+🙁 5% of forty year olds are creative
+
+* School bullies
+* Poor teachers who provide poor feedback
+* Parents unable to control stress and take it out on their children
+
+#### Meditation Improves Creativity
+
+* Calms us
+* Enhances our resilency
+
+##### Mindfulness Practices Enhance 3 Essential Skills Necessary for Problem-Solving
+
+1. opens our minds to new ideas
+2. improves attention, making it easier to see the usefulness of ideas
+3. nurtures courage and resilience in the face of skepticism and setbacks
+
