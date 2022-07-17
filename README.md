@@ -219,3 +219,14 @@ Our ability to accurately read the dynamic reactions of individuals and groups.
 * **Look for commonalities with others:** When interacting with people who at first glance seem to be different from you, look for sources of commonality and shared experience. Maybe you’re fans of the same sports team or both know what it’s like to lose a loved one. If nothing else, you can remind yourself that you are both members of the human species. Seeing your Shared Identity can help you overcome fear and distrust and promote empathy and cooperation.
 * **Read fiction:** Reading a great work of literature—or watching a film or play—allows us to temporarily step out of our own lives and fully immerse ourselves in another person’s experience. Indeed, research suggests that fiction readers are better attuned to the social and emotional lives of others.
 * **Pay attention to faces:** Facial expressions communicate a lot about a person’s emotional state.
+
+### Social Awareness
+
+> We are down and out, look at our faces, inspire us NOW!
+-[Non-verbal message from worn out employees to their leaders]
+
+* When we're attuned to the subtle elements of how humans collaborate, coordinate, communicate these very subtle cues, ot actually can be fruitful even in our entrepreneurial ventures, trying to understand the subtle things which we take for granted between humans, communicating without words can be very productive, helpful. And it's just fascinating how it can be used.
+* There is a wealth of information we can glean by paying attention to others, in particular the signals that they send to us intentionally or unintentionally
+  * non-verbal gestures, vocal intonation, facial expressions
+* We are very adept when we're attuned into understanding something is going on with another person. It's when we're blind to this by not paying attention on only focus on the task at hand can escalate and excerbate problems.
+  * it is important to be attuned and acknowledge how people are feeling and more importantly to acknowledge that we are picking up on some non-verbal cues during communication
