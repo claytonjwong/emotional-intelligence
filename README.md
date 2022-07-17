@@ -205,3 +205,17 @@ Fear of failure and setbacks are inextricably linked with the innovation process
 
 Our ability to accurately read the dynamic reactions of individuals and groups.
 
+### Empathy
+
+* Empathy is the ability to sense other people’s emotions, coupled with the ability to imagine what someone else might be thinking or feeling.
+* Research suggests that empathic people tend to be more generous and concerned with others’ welfare, and they also tend to have happier relationships and greater personal well-being.
+* Empathy can also improve leadership ability and facilitate effective communication.
+* But research also suggests that people differ in the extent to which they experience empathy.
+
+#### Nurture Empathy Skills
+
+* **Practice active listening:** Active listening involves approaching a conversation with a genuine desire to understand the other person’s feelings and perspective, without judgment or defensiveness. When we engage in active listening, we tune into what our conversation partner is saying without interrupting him or her, paying careful attention to their body language and facial expressions and periodically repeating back to them what we think they're trying to say, to make sure you understand them accurately. Research suggests that practicing active listening can increase empathy and improve relationship satisfaction.
+* **Share in other people’s joy:** Empathy is not just about commiserating; it can also be experienced in response to positive emotions like happiness and pride. Research on “capitalization” suggests that empathy for positive events—such as expressing enthusiasm when someone shares good news—can be just as important for relationship well-being as empathy for negative events.
+* **Look for commonalities with others:** When interacting with people who at first glance seem to be different from you, look for sources of commonality and shared experience. Maybe you’re fans of the same sports team or both know what it’s like to lose a loved one. If nothing else, you can remind yourself that you are both members of the human species. Seeing your Shared Identity can help you overcome fear and distrust and promote empathy and cooperation.
+* **Read fiction:** Reading a great work of literature—or watching a film or play—allows us to temporarily step out of our own lives and fully immerse ourselves in another person’s experience. Indeed, research suggests that fiction readers are better attuned to the social and emotional lives of others.
+* **Pay attention to faces:** Facial expressions communicate a lot about a person’s emotional state.
