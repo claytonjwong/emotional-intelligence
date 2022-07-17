@@ -189,3 +189,19 @@ Fear of failure and setbacks are inextricably linked with the innovation process
 2. improves attention, making it easier to see the usefulness of ideas
 3. nurtures courage and resilience in the face of skepticism and setbacks
 
+### Accurately Reading Others
+
+> Let soul speak with the silent articulation of a face
+>
+-[Rumi](https://en.wikipedia.org/wiki/Rumi)
+
+* We convery alot of communication via non-verbal gestures.
+  * Allows humans to better coordinate their actions
+  * Visually impared folks display the same emotional expressions via their bodies and faces
+* Core humanity behind this lingua franca emotional communication
+  * transcends traditions, cultures, and languages
+
+#### Social Awareness: Externally Focused Emotional Intelligence
+
+Our ability to accurately read the dynamic reactions of individuals and groups.
+
