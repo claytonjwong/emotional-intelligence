@@ -230,3 +230,43 @@ Our ability to accurately read the dynamic reactions of individuals and groups.
   * non-verbal gestures, vocal intonation, facial expressions
 * We are very adept when we're attuned into understanding something is going on with another person. It's when we're blind to this by not paying attention on only focus on the task at hand can escalate and excerbate problems.
   * it is important to be attuned and acknowledge how people are feeling and more importantly to acknowledge that we are picking up on some non-verbal cues during communication
+
+### Emotional Aperture
+
+#### Trees vs. Forest: Can We Read the Emotions of a Person and Groups?
+
+* Emotional aperture, much like the metaphor of a camera, is meant to convey this point of changing your depth of focus to bring into focus one particular person here, for example. Or shifting that aperture to bring into focus the larger group and back and forth. People tend to be looking at trees only or maybe only at the forest.
+* What drives a team's ability to perform at exceptional levels across many different tasks?
+  * Turn-taking during speaking via social sensitivity (the emotional landscape)
+* Reading emotional landscapes is key to helping teams perform.
+  * When you're able to read the group, you're able to better get a sense, are people confused as a whole? Maybe I need to repeat. Are people getting bored as a whole. Maybe I need to accelerate. Is there a lot of distribution in how the room is feeling? Maybe there's a lot of confusion. I need to clarify. Is everyone feeling the same, perhaps now we're ready to mobilize.
+  * We can be more attuned and accurate at reading emotional landscapes and thus equipped with what we need to do in order to architect the atmosphere to fit the task at hand.
+    * Very specifically, there often are two types of tasks. One in which we're trying to mobilize a group to achieve a particular task because the solution is known. But there are times when the solution is not known. This is where creativity and innovation is key. Here we need a different emotional landscape, whereas in execution, we need people feel in the same. In innovation, having people feel differently or fostering those differences in feelings can allow groups to have better decision-making. We saw this when we talked about the connection between emotions and wisdom.
+
+#### How Leaders Can Optimize Teams’ Emotional Landscapes
+
+**🙁 There are deleterious consequences of encouraging employees to share the same mood on work culture**
+* In attempting to align employee’s emotions, leaders don’t consider the breadth of feelings and discount individual differences. This fosters a culture that is exclusive and inhibits diversity of perspectives--qualities crucial to promoting innovation and creativity.
+
+**🙂 Building upon the notion of emotional aperture to focus on how a leader’s ability to read and manage group emotions can influence a group’s ability to complete well-known tasks and more complex, ambiguous innovative tasks**
+* Questions leaders should ask:
+  * What is the current primary objective?
+  * What is the current emotional landscape of the team?
+  * Are there any patterns in the collective?
+* Based on answers, leaders should use the appropriate strategies:
+  * **Play 1 - Nurture emotions:** when the task is execution and the current emotional landscape is aligned
+  * **Play 2 - Align emotions:** when the task is execution and the current emotional landscape is diverse
+  * **Play 3 - Acknowledge emotions:** when the task is innovation and the current emotional landscape is diverse
+  * **Play 4 - Diversify emotions:** when the task is innovation and the current emotional landscape is aligned
+
+##### Feeling Differently, Creating Together
+
+Variations in individual affective states more likely leads to improved group creativity if teams have a well-developed transactive memory system that allows members to effectively engage in an information exchange and elaboration process.
+
+##### Reading Group Emotions is Key to Transformational Leadership
+
+* Leaders can be more transformational in the eyes of others when they become skilled at reading group emotions (i.e., using their emotional apertures).
+* Individual contributors an become more aware of the importance of reading group emotions.
+* Emotional intelligence, being able to see how people are feeling, feel the room or read the room is an important skillset for any leader because communication, our words, the direction we give, and how we give it is what's going to allow us to be successful in our teams to actually hear what we're saying, give us candid feedback. And then we can move forward in alignment.
+  * Today, especially when a lot of our communications is through technology. The filter of the technology can enable us to ignore the fact that there's another person on the other side of that technology. That person is maybe not communicating via her words or his words clearly because we're emphasizing shortness of our messages, ie. 40 characters. That leaves the door wide open for us to miss a lot of signals and subsequently fail in our efforts to communicate which drives poor decision making and poor results.
+  * Emotional intelligence is even more critical in today's world of virtual technology, social media, texting, tweeting and an end. So even in our tweeting and emails, try to convey emotion.
