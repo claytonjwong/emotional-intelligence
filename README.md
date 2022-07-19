@@ -365,3 +365,15 @@ Having the courage to have a difficult conversation is important to developing o
 3. moments that matter
 
 ⭐️ Mentors create their legacy through how they help other individuals in the organization
+
+### Legacy
+
+* As socially emotional and intelligent people connected to the earth and to the people on earth, what will be our legacy?
+  * Relationships and helping others
+  * Art, music, work, making money to support others or causes
+* It only takes a few seconds to change someone's life, what have we done recently to enhance those around us?
+* Our legacy may change multiple times in our life and we may find it in unexpected places. Where are we looking? Are we passionate about where we are today? What could enhance that passion?
+* Regret has been touted as a wasted emotion, but all of us have regrets. I urge us to think of a regret and turn it around. What positive did we gain from the experience? Put the regret in an imaginary box and put it on a shelf.
+
+⭐️ What will our symphony be?
+* [Mr. Holland's Opus](https://www.youtube.com/watch?v=DazBAe9ncfw)
