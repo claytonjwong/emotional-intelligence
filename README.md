@@ -270,3 +270,47 @@ Variations in individual affective states more likely leads to improved group cr
 * Emotional intelligence, being able to see how people are feeling, feel the room or read the room is an important skillset for any leader because communication, our words, the direction we give, and how we give it is what's going to allow us to be successful in our teams to actually hear what we're saying, give us candid feedback. And then we can move forward in alignment.
   * Today, especially when a lot of our communications is through technology. The filter of the technology can enable us to ignore the fact that there's another person on the other side of that technology. That person is maybe not communicating via her words or his words clearly because we're emphasizing shortness of our messages, ie. 40 characters. That leaves the door wide open for us to miss a lot of signals and subsequently fail in our efforts to communicate which drives poor decision making and poor results.
   * Emotional intelligence is even more critical in today's world of virtual technology, social media, texting, tweeting and an end. So even in our tweeting and emails, try to convey emotion.
+
+
+## What Do Transformative Mentors and Lasting Legacies Have in Common?
+
+We will explore how transformational mentors and lasting legacies, the legacies that we leave behind are inextricably linked together.  When we close the social and physical distance between us and others, it allows transformational change to blossom.
+
+### Social Acceleration: Our Ability to Bring Out the Best in Others and the Relationship
+
+Coaching and mentoring are close allies in the field of helping others to grow and develop. Think and notice throughout this lesson how close these transformational relationships are to the legacies that we leave in this life.
+
+#### Kata: Choreographer Movement
+
+When we're thinking of coaching, think of choreographing the way in which we coach because we are doing one of the most important things that we can do with another person.  We are the choreographer in the development of another human being.
+
+### Building Trust
+
+#### ⭐️ People will not follow you if they don't trust you.
+
+* Relationships are a very important part of life, especially corporate life.
+* Relationships are necessary for the creation of new knowledge, ideas, and products.
+* Our ability to work with and through others will determine our impact in organizations and with other people.
+* What matters to leaders:
+  * creation of relationships (build + nurture)
+  * underlying trust that is required to create those relationships
+* Don't forget to turn around, check whether there are others following us.
+  * delve deeply into relationships, which are critical to furthering the work that we have to do together. Notice whether there is chemistry between us and others.
+    * Chemistry includes friendliness, compassion, empathy, caring for one another.
+
+#### ⭐️ Without the formation of trust, no relationship can flourish and grow.
+
+* We have the ability to grow knowledge through establishing relationships with others.
+  * Non-work activities: do them before we get down to work.
+    * Go out together, have fun, get to know each other on a personal level before we start to do the work. It is the same for all of us in our work lives, get to know the personal, build relationships first, and the results will be better.
+  * We know through research the results will be better, we will take the performance of our team to a higher level if we first concentrate on the personal. The result is that teams perform at a higher level.
+  * And if we are working remotely, make sure our cameras are on, have a coffee hour, Hi mom zoom call or whatever y'all do. Have a drink together or share things that are most important to each of us, share our strengths, share our weaknesses.
+    * What about our favorite foods, or our favorite places?
+    * The favorite countries in the world, the favorite things we like to do. I say people sharing before project execution and nurturing is an important part of keeping our relationships healthy and alive. We know the three ways to bring humans together faster and close its social or actual distance:
+      1. **storytelling:** when we story tell, we elicit a positive chemical in the brain, because these emotions were formed when we were children upon hearing the words of our parents or our caregivers
+      2. **teaching:** when we teach and coach, we first give the recipient the knowledge that we care enough about them to help them with something
+      3. **coaching:** the giving of ourself with knowledge, expertise, and caring helps to build trust
+
+### Trust is the Currency of Relationships
+
+It facilitates and is the conduit that helps bring people together, placing trust in another person allows us to feel safe and secure. If we are a leader in the organization who creates an environment where we feel psychologically safe, then we can bring ourself our whole self and our ideas to work. But how can we build trust? We have to listen, observe and ask questions. We also need to be open to hearing the answers to the questions that we ask. That's part of our social emotional intelligence is having an interest in the lives of others. It really involves having empathy, not sympathy, there's a very subtle difference between the two. We have to practice being in each other's shoes, but not absorbing the emotions of others. This subtle difference between empathy and sympathy is important. We can't get so close or involved that we feel the emotions so strongly of others so intensively, that we can't help them. We need to maintain just a slight distance so that we can aid them in helping them solve their problem. We must put down our phones, look into the eyes of others, and try to understand through questioning, and creating a path for them to decide where they need to take themselves.
