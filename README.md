@@ -353,3 +353,15 @@ Having the courage to have a difficult conversation is important to developing o
 * This is very similar to storytelling. Tell the person what we saw, what we heard, or what we felt when they did the behavior that we are addressing
 * We want to have them think about what are the alternatives to their behavior and have them select an alternative that works for them, not for us. It must be their own.
 * Negative or constructive feedback should be done privately and soon after the behavior is felt, seen, or heard
+
+### Legacy, Mentorship, and Moments that Matter
+
+⭐️ People will not remember what we said, they will not remember what we did, but they will remember how we made them feel.
+
+#### Three Interconnected Themes
+
+1. legacy
+2. transformational mentors, and
+3. moments that matter
+
+⭐️ Mentors create their legacy through how they help other individuals in the organization
