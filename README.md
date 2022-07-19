@@ -338,3 +338,18 @@ Having the courage to have a difficult conversation is important to developing o
 
 * We want to be liked and appreciated
 * We don't want to be vulnerable or feel exposed
+
+### Giving Feedback
+
+#### Two Difficult Things in Our Lives
+
+1. **Giving feedback:** 86% of organizations said its important to give feedback
+2. **Receiving feedback:** 46% of organizations said they were able to do it
+
+⭐️ Continuous improvement will not happen without feedback. Remember, feedback to feed-forward
+
+* Vague comments help nothing. We must be very clear when we give feedback
+* Before we give feedback, we also should ask the person, "Are you open to a little feedback today?"
+* This is very similar to storytelling. Tell the person what we saw, what we heard, or what we felt when they did the behavior that we are addressing
+* We want to have them think about what are the alternatives to their behavior and have them select an alternative that works for them, not for us. It must be their own.
+* Negative or constructive feedback should be done privately and soon after the behavior is felt, seen, or heard
