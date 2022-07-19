@@ -314,3 +314,27 @@ When we're thinking of coaching, think of choreographing the way in which we coa
 ### Trust is the Currency of Relationships
 
 It facilitates and is the conduit that helps bring people together, placing trust in another person allows us to feel safe and secure. If we are a leader in the organization who creates an environment where we feel psychologically safe, then we can bring ourself our whole self and our ideas to work. But how can we build trust? We have to listen, observe and ask questions. We also need to be open to hearing the answers to the questions that we ask. That's part of our social emotional intelligence is having an interest in the lives of others. It really involves having empathy, not sympathy, there's a very subtle difference between the two. We have to practice being in each other's shoes, but not absorbing the emotions of others. This subtle difference between empathy and sympathy is important. We can't get so close or involved that we feel the emotions so strongly of others so intensively, that we can't help them. We need to maintain just a slight distance so that we can aid them in helping them solve their problem. We must put down our phones, look into the eyes of others, and try to understand through questioning, and creating a path for them to decide where they need to take themselves.
+
+### Personal Change is Difficult
+
+* Change is very difficult for most of us, especially as we get older
+  * We get comfortable and wish to stay in our comfort zone
+* More is learned and retained when we operate outside our comfort zone
+
+#### Why are we so resistant to change?
+
+* Change it takes time and effort. It's nice to remain the way things always were, especially as we get older.
+* As we become more experienced, the old adage is, we get set in our ways
+
+#### Growth Mindset
+
+We have a growth mindset when we're open to new learning and allow ourselves to look at the world in a new and different way. We are a learner, not a knower. It's also hard to do this because we don't want to admit that we don't know something. That we think others know it better than we do. Sometimes we don't want to move from where we are because we're afraid of failure. We may have failed at something and it hurt terribly and we don't want to repeat that again. People learn from failures and successes. Sometimes even more from failures.
+
+⭐️ Journal: What did we learn today that we didn't know yesterday?
+
+#### Difficult Conversations
+
+Having the courage to have a difficult conversation is important to developing others. What would we do if we just had 1 percent more courage? Who could we help? Who could we grow in the future?
+
+* We want to be liked and appreciated
+* We don't want to be vulnerable or feel exposed
